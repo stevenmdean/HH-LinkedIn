@@ -41,6 +41,7 @@ LinkedIn Profiles of Hackathon Hackers Facebook group members
 - [Sanil Chawla](https://www.linkedin.com/in/sanilc)
 - [Siddharth Shetty](https://in.linkedin.com/in/siddshetty)
 - [Stefan K. Johansen](https://dk.linkedin.com/in/stefanjohansen)
+- [Steve Dean](https://www.linkedin.com/in/stevenmdean)
 - [Steve Mandala](https://www.linkedin.com/in/smandala)
 - [Susie Kim](https://www.linkedin.com/in/susiemielekim)
 - [Tanishq Dubey](https://www.linkedin.com/in/tanishqdubey)
